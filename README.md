@@ -1,1 +1,1 @@
-# Pequenos-Talentos---Robotica-2026
+# PEQUENOS TALENTOS - ROBÓTICA 2026
